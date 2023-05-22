@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GigiGruber
+- 👋 Hi, I’m @GeovanaGruber
 - 👀 Tenho interesse em adquirir conhecimentos, e conhecer gente!
 
 <!---
